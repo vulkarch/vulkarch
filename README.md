@@ -1,4 +1,4 @@
-<p align="center"> < <a href="[github.com/wishlizx](https://github.com/wishlizx)"> @wishlizx <a/> 3
+<p align="center"> < <a href="https://github.com/wishlizx"> @wishlizx <a/> 3
 
 
 <p align="center">
